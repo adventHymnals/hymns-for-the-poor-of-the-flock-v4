@@ -1,0 +1,25 @@
+
+## 108.  How can we sink with such a prop.
+[edit](https://docs.google.com/document/d/1uDk3P9znVAOOpL06RWcaifEB2%2DX9Nfpm/edit?mode=html)
+
+
+
+    1. How can we sink with such a prop
+    As the eternal God,
+    Who bears the earth’s huge pillars up,
+    And spread the heav’ns abroad.
+
+    2. How can we die while Jesus lives,
+    As risen from the dead?
+    Since life and grace the church receives,
+    In her exalted Head.
+
+    3. All that we are, and all we have,
+    Shall be for ever Thine;
+    And all a duteous heart would give, 
+    Our cheerful hands resign.
+
+    4. For if we might make some reserve, 
+    And duty did not call,
+    Thou lov’st us, Lord, with such a love, 
+    That we would give Thee all.

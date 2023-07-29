@@ -1,0 +1,25 @@
+
+## 72.  The saint amid this stormy world
+[edit](https://docs.google.com/document/d/146RwfbYFsB_sSb77%2DNB6S7sqt9EVRR9h/edit?mode=html)
+
+
+
+    1. The Saint amid this stormy world,
+    Is like the flutter’d dove,
+    And fain would be as swift of wing,
+    To flee to Him we love.
+
+    2. The cords that bound our hearts to earth
+    Are loos’d by Jesus’ hand,
+    Before His cross we now are left,
+    As strangers in the land.
+
+    3. That visage marr’d, those sorrows deep,
+    The thorns, the scourge, the gall, 
+    These were the golden chains of love, 
+    His captives to enthral.
+
+    4. Our hearts are with Him on the throne,
+    And ill can brook delay,
+    Each moment longing for that word,
+    “Rise up and come away.”

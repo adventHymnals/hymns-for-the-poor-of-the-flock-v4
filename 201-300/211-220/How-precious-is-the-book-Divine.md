@@ -1,0 +1,20 @@
+
+## 215.  How precious is the book Divine.
+[edit](https://docs.google.com/document/d/1irpsnKXFHzTZdJuxDl3bE_HNRlX3t74t/edit?mode=html)
+
+
+
+1\. How precious is the book Divine,\
+By inspiration giv'n\
+As a bright lamp its doctrines shine,\
+To guide our souls to heav'n.\
+\
+2. It sweetly cheers our drooping hearts\
+In this dark vale of tears;\
+Life, light, and joy it still imparts,\
+And quells our rising fears.\
+\
+3. This lamp, thro' all the tedious night\
+Of life, shall guide our way;\
+'Till we behold the clearer light\
+Of an eternal day.

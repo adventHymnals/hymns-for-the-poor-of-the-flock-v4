@@ -1,0 +1,30 @@
+
+## 245.  'God knew the Church  unsought, He sought.'
+[edit](https://docs.google.com/document/d/1nwb8gDlrtw7c9q8KT5u%2DPsEMe2c_JLtZ/edit?mode=html)
+
+
+
+    1. God knew the church—unsought, He sought;
+    Wondrous His love has been;
+    With Jesus’ blood He sav’d and bought,
+    And freed her from her sin.
+
+    2. He keeps her now—securely keeps,
+    Whatever foe assails;
+    With vigilance that never sleeps,
+    With pow’r that never fails.
+
+    3. He gives her hope that she shall be
+    Ere long with Him above;
+    That she shall all His glory see 
+    And celebrate His love.
+
+    4. Then let us, while we dwell below,
+    Obey the Father’s voice;
+    To all His dispensations bow,
+    And in His name rejoice.
+
+    5. How sweet to hear Him say at last,
+    “Ye blessed children, come,
+    Sorrow and crying now are past,
+    And heav’n is now your home.’’

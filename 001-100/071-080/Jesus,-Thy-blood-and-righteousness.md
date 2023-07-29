@@ -1,0 +1,30 @@
+
+## 77.  'Jesus, Thy blood and righteousness.'
+[edit](https://docs.google.com/document/d/14Cs544BzbNv81KUBrHX0I_s%2DImlNspb_/edit?mode=html)
+
+
+
+    1. Jesus, Thy blood and righteousness 
+    Our beauty are, our glorious dress; 
+    Midst flaming worlds, in these array’d 
+    With joy shall we lift up the head.
+
+    2. Bold shall we stand in that great day, 
+    For who aught to our charge shall lay, 
+    While by Thy blood absolv’d we are 
+    From sin’s tremendous curse and fear?
+
+    3. Thus Abraham, the friend of God,
+    Thus all the saints redeem’d with blood,
+    Saviour of sinners Thee proclaim 
+    And all their boast is in Thy name.
+
+    4. This spotless robe the same appears, 
+    When ruin’d nature sinks in years,
+    No age can change its glorious hue,
+    The robe of Christ is ever new.
+
+    5. Then let the dead now hear Thy voice, 
+    And bid Thy chosen ones rejoice,
+    Their beauty this, their glorious dress, 
+    Jesus, the Lord our righteousness.

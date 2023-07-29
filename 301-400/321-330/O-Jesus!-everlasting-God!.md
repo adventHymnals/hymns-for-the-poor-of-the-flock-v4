@@ -1,0 +1,26 @@
+
+## 327.  'O Jesus! everlasting God!'
+[edit](https://docs.google.com/document/d/1%2DQWIbVpHnLMQBO1w5UofNoBEx%2DO4jh4U/edit?mode=html)
+
+
+
+    1. O Je s us! everlasting God!
+    Who didst for sinners shed Thy blood 
+    Upon the shameful tre e;
+    And finish there redemption’s toil,
+    And wTin for us the happy spoil,
+    All praise we give to Thee.328
+
+    2. Fain would we think upon Thy pain, 
+    Would find therein our life and gain,
+    And firmly fix the heart 
+    Upon Thy grief and dying love,
+    Nor evermore from Thee remove,
+    Though from all else we part.
+
+    3. The more through grace ourselves we know, 
+    The more rejoic’d we are to bow
+    And glory in Thy cross;
+    To trust in Thine atoning blood,
+    And look to Thee for ev’ry good,
+    And count all else but loss.

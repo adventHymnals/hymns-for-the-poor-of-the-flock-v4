@@ -1,0 +1,19 @@
+
+## 285.  'Thou hidden love of God, whose height.'
+[edit](https://docs.google.com/document/d/1jri7W6QxD8BwpVU7SPU2u%2DpwgdNlW26a/edit?mode=html)
+
+
+
+    1. Thou hidden love of God, Whose height, 
+    Whose depth unfathom’d no man knows, 
+    I see from far Thy beauteous light,
+    And gladly seek in it repose;
+    That thus my heart from earth set free, 
+    May find its whole delight in Thee!
+
+    2. O crucify this self, that I
+    No more, but Christ in me may liv e; 
+    And bid each vile affection die,
+    Nor let one hateful lust survive;
+    In all things nothing may I see, 
+    Nothing desire, or seek, but Thee.

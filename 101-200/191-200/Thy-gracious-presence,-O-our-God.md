@@ -1,0 +1,35 @@
+
+## 194.  'Thy gracious presence, O our God.'
+[edit](https://docs.google.com/document/d/1rOia3MZu5%2Dbw1A%2Da7_O%2DgLSt9vnDto9k/edit?mode=html)
+
+
+
+    1. Thy gracious presence, O, our God,
+    Our ev’ry wish contains;
+    With this, beneath temptation’s load, 
+    The heart no more complains.
+
+    2. This can our ev’ry care control,
+    Gild each dark scene with light;
+    This is the sunshine of the soul: 
+    Without it all is night.
+
+    3. O happy scenes of pure delight,
+    Where Love’s full beams impart 
+    Unclouded beauty to the sight,
+    And gladness to the heart.
+
+    4. Our place in those fair realms of bliss,
+    Our spirits long to know;
+    Our wishes terminate in this,
+    Nor can they rest below.
+
+    5. Nor do these wishes of the heart
+    Seem foolish, Lord, to Thee;
+    For thou hast said, that where Thou art, 
+    There we shall ever be.195
+
+    6. Thus can our cheerful spirits sing 
+    The darkest hour away,
+    And rise on faith’s expanded wing, 
+    To everlasting day.

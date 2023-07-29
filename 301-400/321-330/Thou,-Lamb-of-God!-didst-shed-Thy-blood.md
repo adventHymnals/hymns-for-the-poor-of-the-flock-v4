@@ -1,0 +1,16 @@
+
+## 326.  'Thou, Lamb of God! didst shed Thy blood.'
+[edit](https://docs.google.com/document/d/1%2DDRCqsOw87FW_lQD0A98Ed2cbQm81OdG/edit?mode=html)
+
+
+
+    Thou, Lamb of God! didst shed Thy blood 
+    Thou didst our load of misery bear;
+    And hast exalted us to share 
+    The rank of Kings and Priests to God.
+    To Thee we render evermore 
+    The honour, glory, praise th at’s due; 
+    Might, power, and obedience, too,
+    And in our hearts we Thee adore.
+    Amen! Am en!
+    O Lord, Amen!

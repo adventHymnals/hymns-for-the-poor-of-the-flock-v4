@@ -1,0 +1,17 @@
+
+## 111.  'Nothing but Thy blood, O Jesus'
+[edit](https://docs.google.com/document/d/1p_xQylXfSbav6pa_NQJAMTDPT49qao81/edit?mode=html)
+
+
+
+1\. Nothing but Thy blood, O Jesus,\
+Could relieve the sinner's sm art;\
+Nothing else from guilt release us,\
+Nothing else could melt the heart.\
+\
+2. Sense of sin doth only harden\
+All the while it works alone;\
+But the grace that seals our pardon,\
+Soon dissolves a heart of stone.\
+\
+1.12 -11 3

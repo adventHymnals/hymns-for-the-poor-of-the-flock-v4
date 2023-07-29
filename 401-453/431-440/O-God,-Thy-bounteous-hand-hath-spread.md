@@ -1,0 +1,15 @@
+
+## 433.  'O God, Thy bounteous hand hath spread'
+[edit](https://docs.google.com/document/d/1Ekbvl3X8AYCW%2DewkOsjkKKV8qaqMV1rS/edit?mode=html)
+
+
+
+    1. O God, Thy bounteous hand hath spread
+    With earthly food our humble board, 
+    And feeds our souls with sweeter bread, 
+    The Bread of life—our gracious Lord.
+
+    2. Thy grace in all things soars above
+    The sweetest song Thy saints can raise, 
+    Yet, Lord, for this, and all Thy love 
+    Accept our weak, unworthy praise.

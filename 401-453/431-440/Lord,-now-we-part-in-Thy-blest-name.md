@@ -1,0 +1,15 @@
+
+## 437.  'Lord, now we part in Thy blest name.'
+[edit](https://docs.google.com/document/d/1ENvElsz96fKTzn62%2D9fgtK71BQwmC50R/edit?mode=html)
+
+
+
+    1. Lord, now we part in Thy blest name,
+    In which we here together came;
+    Grant us our. few remaining days,
+    To work Thy will, and spread Thy praise.
+
+    2. Teach us, in life and death, to bless
+    The Lord our Strength and Righteousness, 
+    And grant us all to meet above,
+    Where we shall ever sing Thy love!

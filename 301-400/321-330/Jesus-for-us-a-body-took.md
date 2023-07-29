@@ -1,0 +1,25 @@
+
+## 328.  Jesus for us a body took
+[edit](https://docs.google.com/document/d/1%2DQ94zh7kPuMMNEK9Xg9ZWR2JFF5v5qxG/edit?mode=html)
+
+
+
+    1. Jesus for us a body took,
+    Our guilt assum’d, our bondage broke, 
+    Discharging all our dreadful debt; 
+    Then let us ne’er this love forget?
+
+    2. Let us renounce our ways with grief, 
+    And cleave to this most sure relief; 
+    Nor Him forget Who left the throne, 
+    And for our life gave up His own.
+
+    3. Ah no! till time itself depart,
+    His name shall cheer and warm each h ea rt; 
+    And, shouting this, from earth we’ll rise 
+    To join the chorus of the skies.
+
+    4. Ah no! when all things else expire,
+    And perish in the general fire,
+    His name all others shall survive,
+    And through eternity shall live.

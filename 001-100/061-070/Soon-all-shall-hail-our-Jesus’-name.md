@@ -1,0 +1,30 @@
+
+## 69.  'Soon all shall hail our Jesus'' name.'
+[edit](https://docs.google.com/document/d/17lI2wJs4coWyxlyBtMSZ_F%2D4x85Eui4C/edit?mode=html)
+
+
+
+    1. Soon all shall hail our Jesus’ name,
+    Angels shall prostrate fall,
+    For Him the brightest glory claim,
+    And hail Him Lord of all.
+
+    2. The risen saints shall sound the lyre,
+    And, as they sound it, fall 
+    Before His face Who formed their choir, 
+    And hail Him Lord of all.
+
+    3. The remnant sav’d from Israel’s race,
+    Redeem’d from Israel’s fall,
+    Shall praise Him for His wondrous grace, 
+    And hail Him Lord of all.
+
+    4. Gentiles shall come—and every king
+    Throughout this earthly ball,
+    To Zion come—and tribute bring,
+    And hail Him Lord of all.
+
+    5. In Heaven—on earth—shall happy throngs
+    In wond’ring rapture fall,
+    And join in everlasting songs,
+    To hail Him Lord of all.

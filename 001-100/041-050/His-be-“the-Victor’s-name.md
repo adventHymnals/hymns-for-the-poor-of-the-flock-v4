@@ -1,0 +1,25 @@
+
+## 44.  'His be "the Victor''s name'
+[edit](https://docs.google.com/document/d/1AUZG3hwUeubguK3J%2DfNB2BuNe59xxvhn/edit?mode=html)
+
+
+
+    1. His be “the Victor’s name,”
+    Who fought our fight alone; 
+    Triumphant saints no honour claim, 
+    His conquest was their own.
+
+    2. By weakness and defeat,
+    He won the meed and crown;
+    Trod all our foes beneath His feet,
+    By being trodden down.
+
+    3. He Hell in hell laid low;
+    Made sin, He sin o’erthrew;
+    Bow’d to the grave, destroy’d it so, 
+    And Death, by dying slew.
+
+    4. Bless, bless the Conq’ror slain,
+    Slain in His victory;
+    Who lived, Who died, Who lives again 
+    For thee, His church, for thee!

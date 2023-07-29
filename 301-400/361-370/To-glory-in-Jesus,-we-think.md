@@ -1,0 +1,14 @@
+
+## 366.  'To glory in Jesus, we think.'
+[edit](https://docs.google.com/document/d/1x__icZKY%2D9pyUuCne6NwrpnWX38OCuGJ/edit?mode=html)
+
+
+
+    To glory in Jesus, we think 
+    Our duty and joy evermore,—
+    For He is our meat and our drink,
+    Our life, and our strength, and our store; 
+    Our Shepherd, our Husband, our Friend, 
+    Our Saviour from sin and from thrall; 
+    Our hope from beginning to end,
+    Our portion, our Lord, and our all.

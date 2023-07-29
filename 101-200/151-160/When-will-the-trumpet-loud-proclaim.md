@@ -1,0 +1,20 @@
+
+## 153.  When will the trumpet loud proclaim.
+[edit](https://docs.google.com/document/d/1pXxogkQ%2DMdooFf66O9Qe0SoEskA_10As/edit?mode=html)
+
+
+
+    1. When will the trumpet loud proclaim 
+    The judgment of the martyr’d Lamb? 
+    When will the captive saints be free, 
+    And keep th’ eternal jubilee?
+
+    2. O Father, let that day appear,
+    The promis’d Great Sabbatic Year;
+    When freed from sin, and toil, and pain, 
+    Thy ransom’d shall in glory reign.
+
+    3. Till then we cannot let Thee rest,
+    But still repeat our strong request;
+    And this our constant cry shall be,
+    Lord, sound the trump of jubilee.

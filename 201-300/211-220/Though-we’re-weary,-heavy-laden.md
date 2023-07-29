@@ -1,0 +1,33 @@
+
+## 211.  'Though we''re weary, heavy-laden.'
+[edit](https://docs.google.com/document/d/1ijy%2D1v4WNl2FhxL3xhXURAyi7hPZf7YF/edit?mode=html)
+
+
+
+    1. Though we’re weary, heavy-laden,
+    Lost and ruin’d in the fall;
+    God in Christ is our salvation,
+    He to us is all in all:
+    Not the righteous,
+    Sinners Jesus came to call.
+
+    2. And for us, though poor and wretched,
+    (God’s redeeming love adore!)
+    Jesus stands in heav’n a Saviour,
+    Full of mercy join’d with pow’r;
+    He is able,
+    He is willing evermore.
+
+    3. Conscience could not make us linger,
+    Nor of fitness could we dream;
+    All the fitness He requireth,
+    Is that we have need of Him:
+    Jesus gave us
+    Free salvation in His name.
+
+    4. See the Saviour high ascended,
+    Pleads for us His precious blood; 
+    On the Father’s grace depending,
+    We, thro’ Him, the sons of God, 
+    Trust in Jesus,
+    Who alone the winepress trod.

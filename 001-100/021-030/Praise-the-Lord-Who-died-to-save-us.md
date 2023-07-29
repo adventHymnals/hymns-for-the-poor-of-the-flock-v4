@@ -1,0 +1,33 @@
+
+## 29.  Praise the Lord Who died to save us
+[edit](https://docs.google.com/document/d/19%2DYaypsHnhBdM1NByiNx8C_H1_LQJFOO/edit?mode=html)
+
+
+
+    1. Praise the Lord Who died to save us;
+    Praise His name, forever dear; 
+    ’Twas by Him the Father gave us 
+    Eyes to see, and ears to hear:
+    Praise the Saviour,
+    Object of our love and fear.
+
+    2. Grace it was, ’twas Grace abounding,
+    Brought Him down to save the lost; 
+    Ye above, the throne surrounding, 
+    Praise Him, praise Him all His host: 
+    Saints adore Him;
+    Ye are they who owe Him most.
+
+    3. Ye, of all His hand created,
+    Objects are of Grace alone;
+    Aliens once, but reinstated;
+    Destin’d now to share His throne:
+    Sing with wonder;
+    Sing of what the Lord hath done.
+
+    4. Praise His name, Who died to save us; 
+    ’Tis by Him alone we live;
+    And in Him the Father gave us 
+    All that boundless love could give:
+    Life eternal
+    In our Saviour we receive.
